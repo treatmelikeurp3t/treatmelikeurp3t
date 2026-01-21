@@ -6,7 +6,7 @@ i wont bite if ud like to int but if i with ma friends ill answer late srry im s
 
   <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/a8f60569-f131-4094-acaa-eb9290336492" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/a8e3d306-3841-4f86-bb2b-fa5d71c4375e" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/38eeb2e1-276e-422f-859e-d28c1a9a003f" />
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/fba71733-a0ee-4229-adfa-589b2c3e986d" />
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/e6540de7-ab68-4886-856e-a4467ee0510f" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/5bdfddb2-3d60-409e-ae3f-43ba1592a50b" />                      
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/e6540de7-ab68-4886-856e-a4467ee0510f" />
 
 
 
