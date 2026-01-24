@@ -1,6 +1,6 @@
 <img width="1600" height="80" alt="image" src="https://github.com/user-attachments/assets/8c171f02-6799-47ba-826f-6cd6f6d1c2b8" />
 
-  ![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+colore35676+Code&pause=10&width=1000&lines=+i+dont+ship+ivandew+i+like+the+trope+and+healthy+au)
+  ![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+colore35676+Code&pause=10&color=e35676&width=1000&lines=+i+dont+ship+ivandew+i+like+the+trope+and+healthy+au)
   
 <img width="2048" height="1848" alt="Без названия972_20260125000513" src="https://github.com/user-attachments/assets/e390435b-cd79-44a8-b3b9-bb4b51bb65e0" />
 
