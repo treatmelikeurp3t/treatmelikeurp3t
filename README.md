@@ -4,7 +4,7 @@ i wont bite if ud like to int but if i with ma friends ill answer late srry im s
 
 
 
-             hi call me andrew/soda/aubree/nash
+             hi call me msak/andrew/soda/aubree/nash
               im mostly offtab  or  drawing
         w2i, friends int pls!!! :3
                   
