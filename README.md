@@ -7,7 +7,13 @@ i wont bite if ud like to int but if i with ma friends ill answer late srry im s
              hi call me msak/andrew/soda/aubree/nash
               im mostly offtab  or  drawing
         w2i, friends int pls!!! :3
-                  
+                
+
+
+
+<img width="1100" height="436" alt="image" src="https://github.com/user-attachments/assets/2135ab39-470d-4c4f-913e-877ec60cc23c" />
+
+
 
 
 <img width="1600" height="80" alt="image" src="https://github.com/user-attachments/assets/32703e61-2d60-49ca-bd5b-04ff20a462ba" />
