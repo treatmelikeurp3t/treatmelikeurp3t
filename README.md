@@ -11,7 +11,8 @@ i wont bite if ud like to int but if i with ma friends ill answer late srry im s
 
 
 
-<img width="1100" height="436" alt="image" src="https://github.com/user-attachments/assets/2135ab39-470d-4c4f-913e-877ec60cc23c" />
+<img width="1100" height="436" alt="image" src="https://github.com/user-attachments/assets/d4eba22b-f00d-4163-92d1-4ae22f6f717f" />
+" />
 
 
 
