@@ -1,13 +1,9 @@
 <h5 align="center">
   
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Hachi+Maru+Pop&pause=1000&color=be74e3&width=435&lines=hi+call+me+eggchan+or+micha+lulz+!!*%22)](https://git.io/typing-svg)<p align="center">
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Hachi+Maru+Pop&pause=1000&color=be74e3&width=435&lines=hi+call+me+eggchan+or+micha+or+judelow!!*%22)](https://git.io/typing-svg)<p align="center">
 
 <p align="center">
 
-             hi call me micha/msak/andrew/soda/aubree/nash
-              im mostly offtab  or  drawing
-        w2i, friends int pls!!! :3
-            
 
 
 ![tumblr_51785165599c1ed7b448fb7e8ace90bb_91e87224_2048](https://github.com/user-attachments/assets/10a25232-57cd-4667-b5b9-cd01a59a953d)
