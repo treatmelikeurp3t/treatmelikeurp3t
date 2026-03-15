@@ -1,6 +1,6 @@
 <h5 align="center">
   
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Hachi+Maru+Pop&pause=1000&color=be74e3&width=435&lines=hi+call+me+eggchan+or+micha+or+judelow!!*%22)](https://git.io/typing-svg)<p align="center">
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Hachi+Maru+Pop&pause=1000&color=be74e3&width=435&lines=call+me+eggchan+or+micha+or+judelow)](https://git.io/typing-svg)<p align="center">
 
 <p align="center">
 
