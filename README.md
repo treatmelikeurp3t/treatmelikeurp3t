@@ -3,9 +3,7 @@
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Hachi+Maru+Pop&pause=1000&color=54ebbb&width=435&lines=call+me+aubree+or+squirm+or+jade)](https://git.io/typing-svg)<p align="center">
 ![tumblr_5cbe72592a990fbcee4e69e820eaec83_467d2513_640](https://github.com/user-attachments/assets/bd85f951-87ef-48c3-8ff2-a9b4b950dae3)
 
-![tumblr_d13de48efafa0f2013b4a341235422bf_0aaeb32e_1280](https://github.com/user-attachments/assets/67fc39cb-f8d1-478d-b9f4-8071ff69a34d)
 
-![a6ec275660f446af19544dc32c36732f](https://github.com/user-attachments/assets/bd302af4-506c-41e6-a200-6ac705335758)
 
 ![tumblr_51785165599c1ed7b448fb7e8ace90bb_91e87224_2048](https://github.com/user-attachments/assets/10a25232-57cd-4667-b5b9-cd01a59a953d)
 
